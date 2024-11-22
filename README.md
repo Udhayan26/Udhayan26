@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Udhayan26
+- 👋 Hi, I’m @Udhayan
 - 👀 I’m interested in Font Design, Vector based design, Database, Programming, Photography
 - 🌱 I’m currently learning Design, Photography
 - 💞️ I’m looking to collaborate on ...
